@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vgudh001@fiu.edu**
 
-- 📄 Know about my experiences <file:///C:/Users/AVINASH/OneDrive/Desktop/Avinash_Certified_Resume.pdf>
+- 📄 Know about my experiences  <https://1drv.ms/b/s!Ar7sjtQ3BdN9iS_L-ZlmqKkZyOEN?e=ymGZQe>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

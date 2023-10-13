@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vgudh001@fiu.edu**
 
-- 📄 Know about my experiences  <https://1drv.ms/b/s!Ar7sjtQ3BdN9iS_L-ZlmqKkZyOEN?e=ymGZQe>
+- 📄 Know about my experiences  <https://1drv.ms/b/s!Ar7sjtQ3BdN9kT005DQHhdTi_im0?e=sj36rm>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
